@@ -1,0 +1,17 @@
+Ordenanza Nº2147/2018
+Ordenanza Nº 2147/2018
+San Andrés de Giles, 09/10/2018
+El expediente nº 4101-2377-0-2018 iniciado en virtud del informe del señor Secretario de Coordinación, Planeamiento y Control de Gestión de la Municipalidad, planteando al Departamento Ejecutivo la posibilidad de la Creación de un Centro Educativo en la Localidad de Azcuénaga; manifestando que para llevar adelante dicho proyecto es necesaria la construcción del espacio correspondiente en la referida localidad para posibilitar el desarrollo de las actividades educativas inherentes a su funcionamientos tales como apoyo escolar y educación informal consistente en dictado de talleres culturales y artísticos, los que serían brindados por la Municipalidad abiertos a toda la comunidad;
+CONSIDERANDO:
+Que el Proyecto mencionado se encuentra contemplado en el punto 2 de la Carta Acuerdo celebrada el día 28 de marzo de 2018 entre la Dirección General de Cultura y Educación de la Provincia de Buenos Aires, representada por el Lic. Gabriel Sanchez Zinni en su carácter de Director General, la Municipalidad de San Andrés de Giles, representada por el señor Intendente Municipal, Contador Carlos Javier Puglelli y el Consejo Escolar local representada por la Profesora Flavia María Sassone en su carácter de Presidente del Organismo, para el desarrollo de las intervenciones en la Infraestructura escolar durante el período 2018 , cuya ratificación dispone el artículo 2º de la Ordenanza Municipal Nº 2082 aprobada por el Honorable Concejo Deliberante durante la Sesión Ordinaria celebrada el día 3 de mayo del año en curso , Promulgada por Decreto Nº 1572 dictado por el Departamento Ejecutivo el día 10 de mayo de 2018.
+Que ha sido agregada a las actuaciones del citado expediente el legajo técnico del proyecto planteado;
+Que el artículo 3º del Decreto Nº 2263/2018 dispone la aprobación del Pliego de Bases y Condiciones correspondiente, estableciéndose como fecha y horario para el acto de apertura de las propuestas correspondientes, el día 30 de agosto del año 2018, a la hora 11:00 ;
+Que conforme se encontraba previsto se realizó en la fecha y hora indicadas el acto de apertura de propuestas, y según consta en el acta Nº 18/2018 (De Licitación Pública) la única oferta presentada es la que corresponde a la Firma LAUREANO OSCAR FERRETTO.
+Que la propuesta en estudio, consiste en un importe total de Pesos Cuatro millones quinientos sesenta y nueve mil quinientos pesos ($4.569.500), cumpliendo el oferente con la documentación requerida en el Pliego de Bases y Condiciones de la Licitación.-
+Que ha sido cumplimentada la formalidad de publicación en el boletín oficial de la Provincia de Buenos Aires y en medios locales, disponiendo el llamado a licitación pública; encontrándose agregadas al expediente mencionado las constancias correspondientes.
+Que, para el caso de existir un solo oferente en la licitación, la Ley Orgánica Municipal prevé en su artículo 155 que se podrá resolver su aceptación, previa autorización del Honorable Concejo Deliberante.
+Que norma similar contiene el artículo 187 del Reglamento de Contabilidad.
+Que debe tenerse en cuenta la conveniencia de la propuesta, como así también que se trata de la optimización de los servicios educativos y sociales en una comunidad rural de gran importancia en nuestro Partido como es la construcción de un centro educativo;
+ORDENANZA
+Por ello, el Honorable Concejo Deliberante sanciona la siguiente:
+O R D E N A N Z A
