@@ -1,0 +1,4 @@
+ARTÍCULO 66°: De acuerdo a lo establecido en la Ordenanza fiscal,
+se abonará por paciente y por mes: ………..…………………………… $ 6.400,00
+TÍTULO 24º
+TASAS APLICABLES AL EMPLAZAMIENTO DE ESTRUCTURAS SOPORTE DE ANTENAS DE COMUNICACIONES MÓVILES Y SUS INFRAESTRUCTURAS RELACIONADAS.

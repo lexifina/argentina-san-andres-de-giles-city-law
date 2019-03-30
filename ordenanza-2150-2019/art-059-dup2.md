@@ -1,0 +1,1 @@
+ARTÍCULO 59°: Las liquidaciones correspondientes a conexiones domiciliarias, ramales especiales de acondicionamiento, cambios o traslados de servicios, de agua corriente o cloacal, análisis de agua potable y líquidos residuales, confrontación y consulta de planos de archivo, separación de servicio, etc., serán practicadas por la Municipalidad conforme a las ordenanzas vigentes.

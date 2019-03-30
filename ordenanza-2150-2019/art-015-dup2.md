@@ -1,0 +1,3 @@
+ARTÍCULO 15°: Obras a construir: La alícuota por derechos de construcción, se fija en el 1 % del valor de la obra, con excepción de las viviendas multifamiliares que se encuentran alcanzadas con la alícuota del 1.5%.
+El derecho de construcción resultará de aplicar dicha alícuota al resultado del producto de la superficie de edificación por el valor de la unidad arancelaria en función de la tabla de Categorías de Obra y Coeficientes definidos por los colegios profesionales que rijan al día de ingreso del legajo de obra por mesa de entradas.
+Erogarán igualmente este derecho las instalaciones eléctricas, electromecánicas y demás obras civiles de acuerdo a presupuesto.

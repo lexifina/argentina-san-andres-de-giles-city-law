@@ -1,0 +1,2 @@
+ARTÍCULO 5°: Las distribuidoras de energía eléctrica deberán presentar, dentro de los 10 (diez) días de vencido cada mes calendario, una declaración jurada con el detalle de los ingresos brutos y las deducciones que correspondan, y liquidara la diferencia entre le importe del tributo y el de las eventuales deudas por servicios o suministros prestados por cualquier concepto a la Municipalidad de San Andres de Giles.
+DEL INGRESO DEL TRIBUTO:

@@ -1,0 +1,1 @@
+ARTÍCULO 58°: Las normas especiales se establecerán en cada caso, por las obras y servicios que se efectúen en cada zona, comenzando a regir las obligaciones fiscales a partir de su liberación al servicio público.
