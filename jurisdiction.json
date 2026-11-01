@@ -1,0 +1,11 @@
+{
+  "path": "ar-b-san-andres-de-giles",
+  "code": "AR-B-SAN-ANDRES-DE-GILES",
+  "name": "San Andrés de Giles",
+  "level": "municipality",
+  "parent": "ar-b",
+  "repo": "https://github.com/lexifina/argentina-san-andres-de-giles-city-law",
+  "build": "built: municipal ordinances (102 ordinances, 102 versions) from https://sibom.slyt.gba.gob.ar/cities/111",
+  "language": "es",
+  "sources": 1
+}
